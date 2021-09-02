@@ -1,2 +1,0 @@
-# Curiculum-Vitae
-professional CV
